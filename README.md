@@ -1,5 +1,4 @@
-### Oiii!
-Sou Luiza Victoria 👋
+### Oiii! Sou Luiza Victoria 🤗✨
 
 <div align="center">
   <a href="https://github.com/lucaLuz">
